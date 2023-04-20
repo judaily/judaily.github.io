@@ -1,1 +1,1 @@
-# judaily.github.io-
+# judaily.github.io
